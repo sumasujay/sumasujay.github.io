@@ -1,1 +1,0 @@
-# sumasujay.github.io
